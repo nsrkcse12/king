@@ -1,4 +1,6 @@
 
-how are you 
+how are you
+how do you do
+
 
 
